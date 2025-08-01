@@ -1,0 +1,1 @@
+# mindx_cinema.2025
